@@ -1,1 +1,0 @@
-# vk_test_task_ds_2024
